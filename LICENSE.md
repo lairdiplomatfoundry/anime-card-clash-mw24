@@ -1,4 +1,4 @@
-
+Experience anime card clash like never before with exclusive Script for anime card clash, the #1 Script. Includes instant win and unlimited stamina
 
 
 
